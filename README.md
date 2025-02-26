@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the grind
 - 📫 How to reach me is by joining the grind
 - 😄 Pronouns: gr/ind
-- ⚡ Fun fact: i am suffering
+- ⚡ Fun fact: tumatakbo na hairline ko
 
 <!---
 UnlimitedLyfes/UnlimitedLyfes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
